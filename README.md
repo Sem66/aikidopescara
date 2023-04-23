@@ -1,0 +1,2 @@
+# aikidopescara
+aikido hokkaido pescara
